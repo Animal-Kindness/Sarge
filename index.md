@@ -1,3 +1,3 @@
-# Index Page
+# In Decline
 
-test
+![Day of sale](day1.jpeg)
