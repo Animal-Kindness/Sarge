@@ -26,16 +26,16 @@ On September 29, 2023, the Carter family purchased Sarge, a large, healthy Belgi
 </div>
 He became noticeably thin, his ribs showing beneath his coat, and his hooves grew long and untrimmed. Sarge’s once gentle spirit faded as he struggled with hunger and discomfort.
 <p>
-Nearly a year later, in late June 2024, an anonymous report was made expressing concerns about Sarge’s well-being. On June 30th, 2024, Officer Robert Flemming responded to the call to check on Sarge’s welfare.
+Nearly a year later, on June 30, 2024, an anonymous report was made expressing concerns about Sarge’s well-being. Officer Robert Flemming responded to the call to check on Sarge’s welfare.
 <a href="reports/2024-163880.pdf" target="_blank">After a thorough check, Officer Flemming found no issues with Sarge</a>.
 </p>
-<p>The Carter family was outraged that someone would request a wellness check on Sarge and began to make acusations against their neighbors. Sarge's health was in decline but the family refused to acknowledge it.
+<p>The Carter family was outraged that someone would request a wellness check on Sarge and began to make accusations against their neighbors. Sarge's health was in decline but the family refused to acknowledge it.
 <p>
 Two months later, on August 7, 2024, another anonymous report was made about Sarge’s condition. This time, Officer Lou Corwin responded to the call. <a href="reports/2024-199408.pdf">Officer Corwin found Sarge in poor condition, walking with difficulty, and exhibiting signs of neurological issues.</a> In only two months, more serious signs are present. Despite these troubling findings, no further action was taken.
 </p>
 
 <p>
-<a href="reports/2024-200221.pdf">Meanwhile, Lin Carter was infurated by the repeated reports.</a> Accustations were made to many in the neighborhood with a warning to stop calling the sheriff. She suspected the Mitchells were behind the calls and requested a Criminal Trespass Warning against them. 
+<a href="reports/2024-200221.pdf">Meanwhile, Lin Carter was infuriated by the repeated reports.</a> Accusations were made toward many in the neighborhood with a warning to stop calling the sheriff. She suspected the Mitchells were behind the calls and requested a Criminal Trespass Warning against them. 
 </p>
 <p>
 <div>
@@ -47,11 +47,11 @@ In April 2025, another anonymous report was made about Sarge’s condition. On A
 </p>
 
 <p>
-The Carters confronted the Mitchells at their front gate, again making baseless accusations, but this time including threats of violence. Two days later they learned of who had made the report and began to harass the caller, threatening lawsuits. 
+The Carters confronted the Mitchells at their front gate, again making baseless accusations, but this time including threats of violence. Two days later they learned of who had made the report and began to harass the caller, threatening lawsuits. The Carter's stil do not acknowledge Sarge's poor health condition. 
 </p>
 
 <p>
-Christy, the previous owner of Sarge learned about his current condition around this time. She stated that the Carters had been given explicit instructions on how to care for Sarge, including feeding him a specific diet. The previous owner was shocked to see Sarge in such poor condition and expressed concern for his well-being. Calls the the Carters were ignored. Christy reached out to authorities with additional background information on Sarge and expressed her concerns about his care, but this fell on deaf ears. The Johnson County Sheriff's Office did not respond or acknowlege her communications. 
+Christy, the previous owner of Sarge learned about his current condition around this time. She stated that the Carters had been given explicit instructions on how to care for Sarge, including feeding him a specific diet. The previous owner was shocked to see Sarge in such poor condition and expressed concern for his well-being. Texts sent to the Carters to see how he was doing, were ignored. Christy reached out to authorities with additional background information on Sarge and expressed her concerns about his care, but this fell on deaf ears. The Johnson County Sheriff's Office did not respond or acknowlegde her communications. 
 </p>
 
 <p>
