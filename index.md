@@ -63,5 +63,5 @@ Click here to view  Christy’s latest email sent June 3, 2025 to Johnson County
 </p>
 
 <p>
-We expect that Sarge will die in his current pasture. We will keep you updated with pictures as this develops. 
+Please pray for Sarge to get the care and love he deserves. The Fort Worth Police Department put him front and center as he was the lead horse in parades. Let’s put him front and center as well. 
 </p>
