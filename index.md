@@ -51,7 +51,15 @@ The Carters confronted the Mitchells at their front gate, again making baseless 
 </p>
 
 <p>
-Christy, the previous owner of Sarge learned about his current condition around this time. She stated that the Carters had been given explicit instructions on how to care for Sarge, including feeding him a specific diet. The previous owner was shocked to see Sarge in such poor condition and expressed concern for his well-being. Texts sent to the Carters to see how he was doing, were ignored. Christy reached out to authorities with additional background information on Sarge and expressed her concerns about his care, but this fell on deaf ears. The Johnson County Sheriff's Office did not respond or acknowlegde her communications. 
+Christy, Sarge’s previous owner, learned about his current condition around this time. She was shocked to see Sarge in such poor condition and was concerned for his well-being. She reached out to Lin Carter (the new owner) several times since the sale of Sarge to see how he was doing however, the texts were ignored. At the time of the sale, Christy explained in detail the care Sarge would need to remain healthy.
+
+Christy reached out to authorities at the Johnson County Sheriff’s Office via email expressing her concerns about Sarges well-being, however this fell on deaf ears. The Johnson County Sheriff's Office did not respond or acknowledge her communications.
+
+Christy reached out to a lot of organizations for assistance. All willing to help however the Johnson County Sheriff’s Department would need to give the green light. 
+
+Click here to view  Christy’s latest email sent June 3, 2025 to Johnson County Sheriff’s Office. 
+
+ 
 </p>
 
 <p>
