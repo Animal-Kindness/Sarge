@@ -47,7 +47,7 @@ In April 2025, another anonymous report was made about Sarge’s condition. On A
 </p>
 
 <p>
-The Carters confronted the Mitchells at their front gate, again making baseless accusations, but this time including threats of violence. Two days later they learned of who had made the report and began to harass the caller, threatening lawsuits. The Carter's stil do not acknowledge Sarge's poor health condition. 
+The Carters confronted the Mitchells at their front gate, again making baseless accusations, but this time including threats of violence. Two days later they learned who had made the report and began to harass the caller, threatening lawsuits. The Carter's stil do not acknowledge Sarge's poor health condition.
 </p>
 
 <p>
