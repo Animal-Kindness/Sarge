@@ -53,15 +53,13 @@ The Carters confronted the Mitchells at their front gate, again making baseless 
 <p>
 Christy, Sarge’s previous owner, learned about his current condition around this time. She was shocked to see Sarge in such poor condition and was concerned for his well-being. She reached out to Lin Carter (the new owner) several times since the sale of Sarge to see how he was doing however, the texts were ignored. At the time of the sale, Christy explained in detail the care Sarge would need to remain healthy.
 
-Christy reached out to authorities at the Johnson County Sheriff’s Office via email expressing her concerns about Sarges well-being, however this fell on deaf ears. The Johnson County Sheriff's Office did not respond or acknowledge her communications.
 
-Christy reached out to a lot of organizations for assistance. All willing to help however the Johnson County Sheriff’s Department would need to give the green light. 
 
-Click here to view  Christy’s latest email sent June 3, 2025 to Johnson County Sheriff’s Office. 
+ 
 
  
 </p>
 
 <p>
-Please pray for Sarge to get the care and love he deserves. The Fort Worth Police Department put him front and center as he was the lead horse in parades. Let’s put him front and center as well. 
+We expect Sarge to die in his current pasture. We will keep you updated. 
 </p>
